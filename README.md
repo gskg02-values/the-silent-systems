@@ -288,8 +288,8 @@ The challenge is choosing to build from it.
 
 ✉️ **Feedback and reflections are welcome as we continue to fine-tune.**
 
-*Curators: Siva [gskg02@gmail.com] & AI Co-creator* [The kind, helping, behind the Web architecture development]
-
+*Curators: Siva [gskg02@gmail.com] & AI Co-author* [The kind, helping, behind the Web architecture development]
+I & AI = WE ; A Teamwork
 ---
 
 **"A RECYCLABLE, REUSABLE, REDUCABLE and a SUSTAINABLE Digital writing with humane thinking."**
