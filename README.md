@@ -283,13 +283,17 @@ The challenge is choosing to build from it.
 
 ### It Is Maintained.
 
-
 ---
+
 
 ✉️ **Feedback and reflections are welcome as we continue to fine-tune.**
 
-*Curators: Siva [gskg02@gmail.com] & AI Co-author* [The kind, helping, behind the Web architecture development]
-I & AI = WE ; A Teamwork
+*Curators: Siva [gskg02@gmail.com] & AI Co-created* [The kind, helping, behind the Web architecture development]
+
 ---
+
+
+
+
 
 **"A RECYCLABLE, REUSABLE, REDUCABLE and a SUSTAINABLE Digital writing with humane thinking."**
